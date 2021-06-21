@@ -1,2 +1,2 @@
 # TripleX
-UwU Doggos UwU
+We love good doggos.
