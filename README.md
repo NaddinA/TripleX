@@ -1,2 +1,2 @@
 # TripleX
-UwU
+UwU Doggos UwU
